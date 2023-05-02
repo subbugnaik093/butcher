@@ -5,8 +5,6 @@ yendare
 nannolage
 eno
 ondu
-sanchalana
-naa
 bareda
 kaviteyalli
 ninade
