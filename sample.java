@@ -1,2 +1,14 @@
 hi
 namaskara
+nee
+yendare
+nannolage
+eno
+ondu
+sanchalana
+naa
+bareda
+kaviteyalli
+ninade
+ondu
+sanchalana
